@@ -1,0 +1,3 @@
+# Julian Barragan
+# CSCI Major
+# 🐼
